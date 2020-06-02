@@ -1,3 +1,3 @@
 # Start!
 
-Let's start working alone.
+Let's start working together!
